@@ -1,6 +1,4 @@
-# A Modest Proposal | Project Gutenberg
-
-*** START OF THE PROJECT GUTENBERG EBOOK 1080 ***
+**Thanks to  Project Gutenberg**
 
 # A Modest Proposal
 
